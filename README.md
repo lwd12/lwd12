@@ -7,7 +7,7 @@ I primarily enjoy playing basketball and soccer, but I also have a passion for a
 
 
 
-I hope for the day when my development skills become perfect.✨
+I hope for the day when my development skills become perfect.✨✨
 
 
 
